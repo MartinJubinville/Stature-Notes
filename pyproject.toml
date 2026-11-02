@@ -1,0 +1,17 @@
+[project]
+name = "stature-notes"
+version = "0.1.0"
+description = "Add your description here"
+readme = "README.md"
+authors = [
+    { name = "Martin Jubinville", email = "martin_jubinville@mac.com" }
+]
+requires-python = ">=3.15"
+dependencies = []
+
+[project.scripts]
+stature-notes = "stature_notes:main"
+
+[build-system]
+requires = ["uv_build>=0.13.1,<0.14.0"]
+build-backend = "uv_build"
