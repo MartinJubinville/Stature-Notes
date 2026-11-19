@@ -42,6 +42,20 @@ Christian faith cannot accept "revelations" that claim to surpass or correct the
 **CCC 1989** The first work of the grace of the Holy Spirit is *conversion*, effecting justification in accordance with Jesus' proclamation at the beginning of the Gospel: "Repent, for the kingdom of heaven is at hand. (*Mt* 4:17)" Moved by grace, man turns toward God and away from sin, thus accepting forgiveness and righteousness from on high. "Justification is not only the remission of sins, but also the sanctification and renewal of the interior man.
 
 TODO: finish Justification
+
 TODO: CCC 422 - 429
+
+Jesus — the Eternal Son of God Made Man
+Paragraph 423 affirms that Jesus of Nazareth, born at Bethlehem under Herod and Caesar, is “the eternal Son of God made man”, who “came from God,” “descended from heaven,” and “came in the flesh.” The Catechism cites John 1:14: “The Word became flesh and dwelt among us, full of grace and truth; we have beheld his glory, glory as of the only Son from the Father… and from his fullness have we all received, grace upon grace.”
+
+The Fulfillment in Christ
+By His birth, life, death, and resurrection, Christ has:
+  
+- Redeemed humanity from sin and death (Galatians 4:4–5)
+- Brought us into adoption as children of God, fulfilling the covenant promise to Abraham.
+- Manifested the fullness of divine grace and revealed God’s love in the Person of His Son
+
+The Church’s Response
+The Catechism notes that the Church was built on the “rock” of Peter’s confession: “You are the Christ, the Son of the living God” (Mt 16:16). The mission of the Church is to proclaim Christ so that people may enter into communion with the Father and the Son.
 
 According to the Catholic Catechism, God’s promise to Abraham — that through his seed all nations would be blessed — is fulfilled in Jesus Christ, the eternal Son of God who became man, lived among us, and through His Passion, Death, and Resurrection delivered humanity from sin and brought us into a new covenant relationship with God.
