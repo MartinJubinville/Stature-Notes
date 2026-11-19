@@ -40,3 +40,8 @@ Christian faith cannot accept "revelations" that claim to surpass or correct the
 [God] gave himself to us through his Spirit. By the participation of the Spirit, we become communicants in the divine nature.... For this reason, those in whom the Spirit dwells are divinized. (St. Athanasius, Ep. Serap. 1,24:PG 26,585 and 588.)
 
 **CCC 1989** The first work of the grace of the Holy Spirit is *conversion*, effecting justification in accordance with Jesus' proclamation at the beginning of the Gospel: "Repent, for the kingdom of heaven is at hand. (*Mt* 4:17)" Moved by grace, man turns toward God and away from sin, thus accepting forgiveness and righteousness from on high. "Justification is not only the remission of sins, but also the sanctification and renewal of the interior man.
+
+TODO: finish Justification
+TODO: CCC 422 - 429
+
+According to the Catholic Catechism, God’s promise to Abraham — that through his seed all nations would be blessed — is fulfilled in Jesus Christ, the eternal Son of God who became man, lived among us, and through His Passion, Death, and Resurrection delivered humanity from sin and brought us into a new covenant relationship with God.
