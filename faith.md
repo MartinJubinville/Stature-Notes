@@ -7,6 +7,8 @@
 
 ## Home Base of Operations
 
+<https://www.scborromeo.org/ccc/ccc_toc.htm>
+
 ### GOD REVEALS HIS "PLAN OF LOVING GOODNESS"
 
 **CCC 51** "It pleased God, in his goodness and wisdom, to reveal himself and to make known the mystery of his will. His will was that men should have access to the Father, through Christ, the Word made flesh, in the Holy Spirit, and thus become sharers in the divine nature."
