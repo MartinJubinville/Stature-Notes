@@ -1,5 +1,10 @@
 # New Life of Faith
 
+- [New Life of Faith](#new-life-of-faith)
+  - [Home Base of Operations](#home-base-of-operations)
+    - [GOD REVEALS HIS "PLAN OF LOVING GOODNESS"](#god-reveals-his-plan-of-loving-goodness)
+    - [Grace and Justification](#grace-and-justification)
+
 ## Home Base of Operations
 
 ### GOD REVEALS HIS "PLAN OF LOVING GOODNESS"
