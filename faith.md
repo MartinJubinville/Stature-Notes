@@ -27,6 +27,8 @@ Christian faith cannot accept "revelations" that claim to surpass or correct the
 
 ### Grace and Justification
 
+**CCC 1699** **MAN'S VOCATION LIFE IN THE SPIRIT** Life in the Holy Spirit fulfills the vocation of man (chapter one). This life is made up of divine charity and human solidarity (chapter two). It is graciously offered as salvation (chapter three).
+
 **CCC 1987** The grace of the Holy Spirit has the power to justify us, that is, to cleanse us from our sins and to communicate to us "the righteousness of God through faith in Jesus Christ" and through Baptism:
 
 > But if we have died with Christ, we believe that we shall also live with him. For we know that Christ being raised from the dead will never die again; death no longer has dominion over him. The death he died he died to sin, once for all, but the life he lives he lives to God. So you also must consider yourselves as dead to sin and alive to God in Christ Jesus. (*Rom* 6:8-11)
