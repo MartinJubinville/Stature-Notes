@@ -19,4 +19,20 @@
 
 **CCC 143** *By faith*, man completely submits his intellect and his will to God. With his whole being man gives his assent to God the revealer. Sacred Scripture calls this human response to God, the author of revelation, "the obedience of faith".
 
+**CCC 65** ***There will be no further Revelation*** "The Christian economy, therefore, since it is the new and definitive Covenant, will never pass away; and no new public revelation is to be expected before the glorious manifestation of our Lord Jesus Christ." Yet even if Revelation is already complete, it has not been made completely explicit; it remains for Christian faith gradually to grasp its full significance over the course of the centuries.
+
+**CCC 66** Throughout the ages, there have been so-called "private" revelations, some of which have been recognized by the authority of the Church. They do not belong, however, to the deposit of faith. It is not their role to improve or complete Christ's definitive Revelation, but to help live more fully by it in a certain period of history. Guided by the Magisterium of the Church, the sensus fidelium knows how to discern and welcome in these revelations whatever constitutes an authentic call of Christ or his saints to the Church.
+
+Christian faith cannot accept "revelations" that claim to surpass or correct the Revelation of which Christ is the fulfillment, as is the case in certain non-Christian religions and also in certain recent sects which base themselves on such "revelations".
+
 ### Grace and Justification
+
+**CCC 1987** The grace of the Holy Spirit has the power to justify us, that is, to cleanse us from our sins and to communicate to us "the righteousness of God through faith in Jesus Christ" and through Baptism:
+
+> But if we have died with Christ, we believe that we shall also live with him. For we know that Christ being raised from the dead will never die again; death no longer has dominion over him. The death he died he died to sin, once for all, but the life he lives he lives to God. So you also must consider yourselves as dead to sin and alive to God in Christ Jesus. (*Rom* 6:8-11)
+
+**CCC 1988** Through the power of the Holy Spirit we take part in Christ's Passion by dying to sin, and in his Resurrection by being born to a new life; we are members of his Body which is the Church, branches grafted onto the vine which is himself (Cf. *1 Cor* 12; *Jn* 15:1-4.):
+
+[God] gave himself to us through his Spirit. By the participation of the Spirit, we become communicants in the divine nature.... For this reason, those in whom the Spirit dwells are divinized. (St. Athanasius, Ep. Serap. 1,24:PG 26,585 and 588.)
+
+**CCC 1989** The first work of the grace of the Holy Spirit is *conversion*, effecting justification in accordance with Jesus' proclamation at the beginning of the Gospel: "Repent, for the kingdom of heaven is at hand. (*Mt* 4:17)" Moved by grace, man turns toward God and away from sin, thus accepting forgiveness and righteousness from on high. "Justification is not only the remission of sins, but also the sanctification and renewal of the interior man.
