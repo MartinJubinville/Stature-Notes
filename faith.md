@@ -59,3 +59,5 @@ The Church’s Response
 The Catechism notes that the Church was built on the “rock” of Peter’s confession: “You are the Christ, the Son of the living God” (Mt 16:16). The mission of the Church is to proclaim Christ so that people may enter into communion with the Father and the Son.
 
 According to the Catholic Catechism, God’s promise to Abraham — that through his seed all nations would be blessed — is fulfilled in Jesus Christ, the eternal Son of God who became man, lived among us, and through His Passion, Death, and Resurrection delivered humanity from sin and brought us into a new covenant relationship with God.
+
+Note how God has fulfilled promises in Christ, in his sacred humanity and shares the fruit of what was done in him in his church.
