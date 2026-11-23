@@ -4,6 +4,7 @@
   - [Home Base of Operations](#home-base-of-operations)
     - [GOD REVEALS HIS "PLAN OF LOVING GOODNESS"](#god-reveals-his-plan-of-loving-goodness)
     - [Grace and Justification](#grace-and-justification)
+    - [Hope](#hope)
 
 ## Home Base of Operations
 
@@ -40,6 +41,22 @@ Christian faith cannot accept "revelations" that claim to surpass or correct the
 [God] gave himself to us through his Spirit. By the participation of the Spirit, we become communicants in the divine nature.... For this reason, those in whom the Spirit dwells are divinized. (St. Athanasius, Ep. Serap. 1,24:PG 26,585 and 588.)
 
 **CCC 1989** The first work of the grace of the Holy Spirit is *conversion*, effecting justification in accordance with Jesus' proclamation at the beginning of the Gospel: "Repent, for the kingdom of heaven is at hand. (*Mt* 4:17)" Moved by grace, man turns toward God and away from sin, thus accepting forgiveness and righteousness from on high. "Justification is not only the remission of sins, but also the sanctification and renewal of the interior man.
+
+### Hope
+
+**CCC 1817** Hope is the theological virtue by which we desire the kingdom of heaven and eternal life as our happiness, placing our trust in Christ's promises and relying not on our own strength, but on the help of the grace of the Holy Spirit. "Let us hold fast the confession of our hope without wavering, for he who promised is faithful." (*Heb* 10:23) "The Holy Spirit... he poured out upon us richly through Jesus Christ our Savior, so that we might be justified by his grace and become heirs in hope of eternal life." (*Titus* 3:6-7)
+
+**CCC1818** The virtue of hope responds to the aspiration to happiness which God has placed in the heart of every man; it takes up the hopes that inspire men's activities and purifies them so as to order them to the Kingdom of heaven; it keeps man from discouragement; it sustains him during times of abandonment; it opens up his heart in expectation of eternal beatitude. Buoyed up by hope, he is preserved from selfishness and led to the happiness that flows from charity.
+
+**CCC 1819** Christian hope takes up and fulfills the hope of the chosen people which has its origin and model in the hope of Abraham, who was blessed abundantly by the promises of God fulfilled in Isaac, and who was purified by the test of the sacrifice. (Cf. *Gen* 17:4-8; 22:1-18) "Hoping against hope, he believed, and thus became the father of many nations." (*Rom* 4:18)
+
+**CCC 1820** Christian hope unfolds from the beginning of Jesus' preaching in the proclamation of the beatitudes. The beatitudes raise our hope toward heaven as the new Promised Land; they trace the path that leads through the trials that await the disciples of Jesus. But through the merits of Jesus Christ and of his Passion, God keeps us in the "hope that does not disappoint." (*Rom* 5:5) Hope is the "sure and steadfast anchor of the soul... that enters.. where Jesus has gone as a forerunner on our behalf." (*Heb* 6:19-20) Hope is also a weapon that protects us in the struggle of salvation: "Let us... put on the breastplate of faith and charity, and for a helmet the hope of salvation." (*1 Thess*5:8) It affords us joy even under trial: "Rejoice in your hope, be patient in tribulation." (*Rom* 12:12) Hope is expressed and nourished in prayer, especially in the Our Father, the summary of everything that hope leads us to desire.
+
+**CCC 1821** We can therefore hope in the glory of heaven promised by God to those who love him and do his will. (Cf. *Rom* 8:28-30; *Mt* 7:21.) In every circumstance, each one of us should hope, with the grace of God, to persevere "to the end" (*Mt* 10:22; cf. Council of Trent: DS 1541) and to obtain the joy of heaven, as God's eternal reward for the good works accomplished with the grace of Christ. In hope, the Church prays for "all men to be saved." (*1 Tim* 2:4) She longs to be united with Christ, her Bridegroom, in the glory of heaven:
+
+> Hope, O my soul, hope. You know neither the day nor the hour. Watch carefully, for everything passes quickly, even though your impatience makes doubtful what is certain, and turns a very short time into a long one. Dream that the more you struggle, the more you prove the love that you bear your God, and the more you will rejoice one day with your Beloved, in a happiness and rapture that can never end. (St. Teresa of Avila, Excl. 15:3)
+
+---
 
 TODO: finish Justification
 
