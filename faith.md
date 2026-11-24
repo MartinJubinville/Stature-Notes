@@ -58,6 +58,8 @@ Christian faith cannot accept "revelations" that claim to surpass or correct the
 
 ---
 
+TODO: Faith and Charity
+
 TODO: finish Justification
 
 TODO: CCC 422 - 429
